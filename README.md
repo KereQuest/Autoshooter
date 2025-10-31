@@ -1,1 +1,1 @@
-# Autoshooter
+All rights reserved
